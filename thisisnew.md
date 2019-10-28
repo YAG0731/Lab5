@@ -1,1 +1,1 @@
-Arthur: Yunao 
+Written by Yunao
